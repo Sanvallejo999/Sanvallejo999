@@ -37,3 +37,4 @@ Busco mi **práctica profesional** en automatización o mantenimiento industrial
 
 - LinkedIn: [linkedin.com/in/david-santiago-vallejo-rodriguez](https://www.linkedin.com/in/david-santiago-vallejo-rodriguez)
 - Correo: santiagovallejo2017@gmail.com
+- 
